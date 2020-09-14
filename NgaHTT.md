@@ -2,11 +2,10 @@
 
 ## Tên
 
-Nga - chan
-
+##### Nga - chan
 ## Tuổi
 
-19+
+20 ++
 
 ## Nghề nghiệp
 
